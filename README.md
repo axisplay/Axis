@@ -1,2 +1,3 @@
 # Axis
-reset keyword, rebuild apk, publish apk in playstore
+ya bos ku?
+ada yang bisa saya bantu bos ku?
